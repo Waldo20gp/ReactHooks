@@ -27,6 +27,15 @@ https://youtu.be/yNQh6aFtVFk?si=5zxj02aVDTtKlI_s
 3 2
 https://youtu.be/9YHIn9rYCQE?si=BZS9rrdqtMaPUxQ8
 
+// apocalipsis Minecraft 3 e 3
+https://youtu.be/OgCx-K0TJIQ?si=uwZZRBUeeBzj1A30
+
+// apocalipsis Minecraft 3 e 4
+https://youtu.be/ibhRHzdCy3I?si=1UF84Z3q45Kfpnj-
+
+// apocalipsis Minecraft 3 e 5
+https://youtu.be/GNTom0Dybbs?si=Dtd8UfKk2TxvtlmC
+
 // DBT 
 https://youtu.be/qAU0TYU27v0?si=YO5FVR1Q84S6Oopk
 
