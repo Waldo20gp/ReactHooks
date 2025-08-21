@@ -40,3 +40,16 @@ https://youtu.be/GNTom0Dybbs?si=Dtd8UfKk2TxvtlmC
 https://youtu.be/qAU0TYU27v0?si=YO5FVR1Q84S6Oopk
 
 https://youtu.be/X4hSOOKdP7M?si=aVRLov6RLETdobPj
+
+
+// en tu perra vida 
+https://youtu.be/2aZbQdkdFLo?si=U4dFVyzKxCXW7I8e
+
+// no te creas tan importante 
+https://youtu.be/nMv2PeG-2mc?si=EG0uHrcKjvZbOqRA
+
+// Acabarme de matar
+https://youtu.be/PJpXDFup6DA?si=4gZeTof5J_lVz9uh
+
+//El final de nuestra historia
+https://youtu.be/yuCxXlzhWh8?si=4vMt5wPgZ_Bza17N
