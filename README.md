@@ -53,3 +53,18 @@ https://youtu.be/PJpXDFup6DA?si=4gZeTof5J_lVz9uh
 
 //El final de nuestra historia
 https://youtu.be/yuCxXlzhWh8?si=4vMt5wPgZ_Bza17N
+
+// si tú me quisieras
+https://youtu.be/i9_apne18Lk?si=TZAPnQs8lskHQSyj
+
+//si te vas
+https://youtu.be/Ea655Ji3kKE?si=fYqninVZJfhfl_d_
+
+//how you remind me
+https://youtu.be/Aiay8I5IPB8?si=5bwUXJ8n1tfpXOu4
+
+//the devil went down to Georgia 
+https://youtu.be/aQrClo6H3Zo?si=MZ1nniEHyD52xuAB
+
+// who I am
+https://youtu.be/G9GF_TlDcvc?si=EspSqZksr-L8ZAn0
