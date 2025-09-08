@@ -68,3 +68,6 @@ https://youtu.be/aQrClo6H3Zo?si=MZ1nniEHyD52xuAB
 
 // who I am
 https://youtu.be/G9GF_TlDcvc?si=EspSqZksr-L8ZAn0
+
+//pal Saúl 
+https://youtu.be/XOmW7gm25_8?si=1E2z3lrgfezL1P7R
