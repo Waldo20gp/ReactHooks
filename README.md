@@ -76,7 +76,9 @@ https://youtu.be/XOmW7gm25_8?si=1E2z3lrgfezL1P7R
 https://youtu.be/4QKpnQqMQos?si=G0osU_N5-3vF33qQ
 
 volaron los power
-https://youtu.be/PnNYO_4Tn1o?si=SLJ3g-CBrS7sU0va
+https://youtu.be/pvPIhLjOz_8?si=z3ePo4XTkOQCqHyC
+
+https://youtu.be/bUgCoQqPpWU?si=ltqVYzOyXqorIN9N
 
 lost in Hollywood 
 https://youtu.be/WXJMcwK8Kfo?si=kgwpMGWJO_eszs2f
@@ -84,3 +86,16 @@ https://youtu.be/WXJMcwK8Kfo?si=kgwpMGWJO_eszs2f
 lloviendo estrellas
 https://youtu.be/QnNqUEDDS0A?si=i13QVWkwM6JKF5Bp
 
+sigo aquí
+https://youtu.be/IA0uSub1xy4?si=cbCLeOcU0Tbndt2j
+
+tiene espinas el rosal
+https://youtu.be/a0NSlX5A-8k?si=HQEkfgiPj5wDLt8v
+
+
+Diego ones
+https://youtu.be/bgXI_8qAUYc?si=T-Hs8gz0ubPr73EM
+
+https://youtu.be/UsNboV5bWxc?si=ePO-wn0edEJY3m1n
+
+https://youtu.be/wUsKSty2w7Q?si=mpuoIHJHV33P-GCI
