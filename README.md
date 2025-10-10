@@ -103,3 +103,14 @@ https://youtu.be/wUsKSty2w7Q?si=mpuoIHJHV33P-GCI
 https://youtu.be/6iwX2Jl1XDM?si=o9oLXaFOge1r3-Gs
 
 https://youtu.be/S3uuWOocc7E?si=5Rx3r5hTNfVeqLsD
+
+Doma
+https://youtu.be/pCPYb7KPoUc?si=TB9fMphUyZDoTltQ
+
+brutal
+https://youtu.be/hM2U8cb8lhI?si=itW7wPz4FlQwAcXZ
+
+angra, nothing to say
+https://youtu.be/GcdFH6pAUPs?si=VTVyCLAVam46_Xge
+
+https://youtu.be/T5tZfWrmIfo?si=IJT1-zitvq1Jdsh0
