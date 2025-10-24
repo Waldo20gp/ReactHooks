@@ -114,3 +114,17 @@ angra, nothing to say
 https://youtu.be/GcdFH6pAUPs?si=VTVyCLAVam46_Xge
 
 https://youtu.be/T5tZfWrmIfo?si=IJT1-zitvq1Jdsh0
+
+lithonia
+https://youtu.be/co-bx0mBsLc?si=UIkEEsNdtw7iJKpr
+
+https://youtu.be/xupOnG7aqLc?si=d6ypJIMIx8Y0Ajj4
+
+https://youtu.be/yvbWJXm1lVU?si=GJEKawu8ijMVLi7e
+
+filosofía
+epicteto
+https://youtu.be/LDxI9dKGMpg?si=IRjvN2b2ifglXY2D
+
+imannuel Kant
+https://youtu.be/w0Ytkt7Pymw?si=hhtp64xxu-pozBOB
