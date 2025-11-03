@@ -128,3 +128,6 @@ https://youtu.be/LDxI9dKGMpg?si=IRjvN2b2ifglXY2D
 
 imannuel Kant
 https://youtu.be/w0Ytkt7Pymw?si=hhtp64xxu-pozBOB
+
+where is my mind 
+https://youtu.be/OJ62RzJkYUo?si=8qdg-44IoLR77M9I
