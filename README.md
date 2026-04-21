@@ -183,5 +183,13 @@ https://youtu.be/_3GKsIFtEoE?si=hBvwuVepI0gY2G7P
 money
 https://youtu.be/2aW7HweAf3o?si=HijmzmUEFff1l_2M
 
+https://youtu.be/f85wqJTIDlw?si=mr6A6OkwLxhi38wY 2x2
+
+https://youtu.be/yYZhocg1BWQ?si=i9jCMK31KaVnkFD2
+
+https://youtu.be/Z9vAJ_H0rao?si=HqgH_q0PeC1QW44e le mal su pais
+
+
+
 
 
