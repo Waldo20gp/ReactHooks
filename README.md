@@ -190,6 +190,9 @@ https://youtu.be/yYZhocg1BWQ?si=i9jCMK31KaVnkFD2
 https://youtu.be/Z9vAJ_H0rao?si=HqgH_q0PeC1QW44e le mal su pais
 
 
+https://www.sql-practice.com/
+
+
 
 
 
