@@ -193,6 +193,18 @@ https://youtu.be/Z9vAJ_H0rao?si=HqgH_q0PeC1QW44e le mal su pais
 https://www.sql-practice.com/
 
 
+vegetta777 re requiem
+1
+https://www.youtube.com/live/sn3v2VYWl9c?si=3bKF4iTjvJ1krXVX
+2
+https://www.youtube.com/live/Ni_o4Jmgneg?si=RMP1IpnaXtcdpIUG
+
+3
+https://www.youtube.com/live/9thRjO6TKnM?si=_ogi1qMJn-h6gsEt
+
+https://youtu.be/xw8cENWfbbQ?si=mDDihE16SZW2ftU_
+
+
 
 
 
