@@ -205,6 +205,24 @@ https://www.youtube.com/live/9thRjO6TKnM?si=_ogi1qMJn-h6gsEt
 https://youtu.be/xw8cENWfbbQ?si=mDDihE16SZW2ftU_
 
 
+diminutos
+https://youtu.be/_AsAl9HsyYo?si=2AEgFEPI7xSCIgQe
+
+
+https://youtu.be/eNCtCsAPpGk?si=f5Bhewbz6M-Ss1_-
+
+https://youtu.be/2STQPLJ4ow4?si=a3yOIilWhHaGeuNs
+
+https://youtu.be/qUAMLAqZxSw?si=j36NVykvQyHDq24L
+
+https://youtu.be/L2ObLEGSIg0?si=iKxCVecyV9rt-qJ5
+
+https://youtu.be/KiAtssfUrew?si=Wx6ylPfbngI4svav
+
+https://youtu.be/_-h8Cdr7iqo?si=xCr2yHd_3Rnp8SMo
+
+https://youtu.be/yZmxJA1LgV4?si=pKgTBFpGh0dtGFTt
+
 
 
 
