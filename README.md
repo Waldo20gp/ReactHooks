@@ -223,6 +223,16 @@ https://youtu.be/_-h8Cdr7iqo?si=xCr2yHd_3Rnp8SMo
 
 https://youtu.be/yZmxJA1LgV4?si=pKgTBFpGh0dtGFTt
 
+planeta Vegetta
+https://youtu.be/wCsgxcrZWjU?si=2smUNpYVkygkqgGG
+
+https://youtu.be/gcUf4_ZKsxA?si=E2Wi1-iNAspE02Ll
+
+https://youtu.be/9FAmkVbUdjo?si=6KnofIHupxqui1Yu
+
+https://youtu.be/UhvZa18SRm8?si=dFBHTL-5Xi0IYuCs
+
+https://youtu.be/waBKH94JGQ4?si=xiB8tIhOHgxqihCN
 
 
 
