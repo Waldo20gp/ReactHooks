@@ -265,6 +265,8 @@ https://youtu.be/m4kEFqun1Fo?si=2uZmNfILIwO_EcD4
 https://youtu.be/qahBeZB1g54?si=dDBMQvuNiGsiZuGY
 
 
+robot platón
+https://youtu.be/TgEDiV2WBXw?si=NkJto2O7MgXyJoqC
 
 
 
