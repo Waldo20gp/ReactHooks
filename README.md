@@ -268,5 +268,7 @@ https://youtu.be/qahBeZB1g54?si=dDBMQvuNiGsiZuGY
 robot platón
 https://youtu.be/TgEDiV2WBXw?si=NkJto2O7MgXyJoqC
 
+brain stew
+https://youtu.be/Uk_PG-YEPZ4?si=X33Y3dxmrfYrH-U0
 
 
