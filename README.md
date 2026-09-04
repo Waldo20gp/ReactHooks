@@ -288,6 +288,8 @@ https://youtu.be/kHEhw0DTwnw?si=hWYiYDCUtOdLWHlj
 https://youtu.be/e9jAAOvLzPo?si=xj3eEczQCEKmNoSy
 
 
+
+
 dos tipos de cuidado
 https://youtu.be/j3YypjA0tu0?si=uDx5WBg-_sVEgxPz
 
@@ -296,3 +298,9 @@ https://youtu.be/T5o97DNgFaM?si=wYMMqrsiWUHDCcBP
 
 el padrecito
 https://youtu.be/2HfYJk3KVzg?si=zRnlXQp422L0C1Ea
+
+querido...
+
+https://youtu.be/7cGb-z_JEoc?si=XpFqFqIrWOp-rHRc
+
+https://youtu.be/HKvMMApOauA?si=ULSCahkcw6jp1sgb
