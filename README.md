@@ -304,3 +304,14 @@ querido...
 https://youtu.be/7cGb-z_JEoc?si=XpFqFqIrWOp-rHRc
 
 https://youtu.be/HKvMMApOauA?si=ULSCahkcw6jp1sgb
+
+
+karmaland vegetita
+
+https://youtu.be/_u3NH5yGZt0?si=hvXI1Vx9IdFw0H7u
+
+https://youtu.be/Jxx7_tM4jsM?si=Q_sMmnqU0h34vF0F
+
+https://youtu.be/alMTTngrliI?si=Z-P44fZpK5s99OtN
+
+https://youtu.be/VkrYzPefX3I?si=7OPMTlARmlfTfGGo
