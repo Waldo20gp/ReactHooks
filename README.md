@@ -317,3 +317,23 @@ https://youtu.be/alMTTngrliI?si=Z-P44fZpK5s99OtN
 https://youtu.be/VkrYzPefX3I?si=7OPMTlARmlfTfGGo
 
 https://youtu.be/KB1HAc_zfPQ?si=Cr5W3UFttpHbfEf4
+
+
+Rolitas
+https://youtu.be/-uma38l_se4?si=OEGoB1jOVcQgy-VN
+
+https://youtu.be/wpb55jAV1mM?si=oTBFq2ZQKivY0JAp
+
+https://youtu.be/vGkqyddXE44?si=X4DHNUiXK1RBlMR5
+
+tutoriales
+https://youtu.be/AN9kCZKMEYM?si=Ndw40GULjECKOjFZ
+
+https://youtu.be/h49d1-d_fYk?si=rzt0rjA9fASeHMSz
+
+https://youtu.be/ZLheIoICg7A?si=JBWUH3fjAXa4E6EW
+
+https://youtu.be/FUoLvtk7pU4?si=tDGOymCNESvCOVMf
+
+
+
