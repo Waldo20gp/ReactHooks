@@ -349,6 +349,14 @@ https://youtu.be/w_yYN_bksyk?si=lIY-dbb17m5_3vE6
 
 https://youtu.be/H5qX6b92TZQ?si=L59aLOCNZiIiwbx4
 
+platón
+https://youtu.be/gZJUzpt4z0c?si=3uFCtraPokHWOQ1O
+
+https://youtu.be/OPEkzQtoHi4?si=RR8kkXohrB831ZQo
+
+https://youtu.be/3qwH5pLpJQA?si=wmbkm6tCldV4av2A
+
+https://youtu.be/U-8XdgGZVuQ?si=kbw1nMZfyqlwqZ1Z
 
 
 
